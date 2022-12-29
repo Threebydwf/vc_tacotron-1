@@ -35,3 +35,15 @@ clb -> dbl
 
 * [keithito's tacotron implementation](https://github.com/keithito/tacotron)
 * [cmu_arctic dataset](http://festvox.org/cmu_arctic/)
+
+
+negar heydar sh d 
+
+
+
+
+jkbhjkuhkuhkj,hvjhyg
+
+
+
+gvfghgikujol
